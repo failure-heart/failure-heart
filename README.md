@@ -16,7 +16,7 @@ nicknames are fine with me, i love nicksnmes sm^_^
 
 i'm 14teen, please iwec if your 18+. 
 
- i have internet humor so please bare with me..  >_
+ i have internet humor so please bare with me..  >_<
 
 i loev men i loev men i love him sm man why are men so hot like..
 
