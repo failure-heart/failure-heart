@@ -8,7 +8,7 @@ i'm not changing my pfp till that twink comes back :/
 so me core
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ![IMG_5802](https://github.com/user-attachments/assets/a9f147b7-1b25-4b36-8823-e5606a63998a)
 
-- i honestly have a lot of *names*, but if ur a *green name*, you can call me *anything* you like! **i love nicknames**
+- i honestly have a lot of *names* (**lennox / len**, **kaizen / kai**, ***rinnie - rinne / rin***, ***Kyusaku / Kyu***) .. but if ur a *green name*, you can call me *anything* you like! **i love nicknames**
 - 4*teen* , **iwec** 18+ (***wont hesitate to block immediately***.)
 - i'm a *cuddle comf* person, *please* tell me if you *dont* like *it*
 - [basic **dni** criteria](https://dni-criteria.carrd.co) .
