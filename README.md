@@ -30,9 +30,6 @@ so me core
 [shared rentry with sol :3](https://rentry.co/sharedbetweengays)
 ||
 [RENTRY (THANKS SOL 4 THE RENTRY !!)](https://rentry.co/kai-angel)
-||
-[pronouns.page ><](https://en.pronouns.page/@angelz-kai)
-
 
 ---
 
